@@ -15,7 +15,7 @@ email:    keyofjeli3-1@yahoo.com
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 **Brief Introduction of me**
 
-I am a working professional in analytics field, but I have strong passion in assisting young students to understand the world through their education. Engaging with students  to make them understand more of their school education needs is lacking in today's Malaysis education system, and that is where I want to serve to help students. So far, I have been providing tutoring services to UEC, PT3 and SPM students for nearly two years now on a part-time basis through home tuition approach. Now, I am expending to **online tutoring given that Covid-19 pandemic has disabled mass gathering.
+I am a working professional in analytics field, but I have strong passion in assisting young students to understand the world through their education. Engaging with students  to make them understand more of their school education needs is lacking in today's Malaysia education system, and that is where I can serve to help students. So far, I have been providing tutoring services to UEC, PT3 and SPM students for nearly two years now on a part-time basis through home tuition approach. Now, I am expending to **online tutoring given that Covid-19 pandemic has disabled mass gathering.
 
 **Services that I can help tutor your children and school students.**
 
@@ -25,7 +25,7 @@ I mainly focus on mathematics, modern mathematics, additional mathematics, Engli
 
 I am equipped with the scientific knowledge and English given that I have exposed to them for at least seven years. In these seven years, I have earned a Bachelor's degree (Hons) with double major in Biotechnology and Environment Management. Furthermore, I have recently earned a Master's degree in Data Science and Business Analytics. So, I am willing to share my experience in tutoring your children and school students to understand better on their school subjects. 
 
-In terms of language teaching, I have been fascinating with English and have been using it in my two degrees. When I was studying for my PRM and SPM, my Mathematics, Additional Mathematics, Science, Chemistry, and Biology subjects were taught and learnt in Bahasa Malaysia. This means that I have no problem tutoring young students to learn these technical subjects in both English and Bahasa Malaysia. Additionally, I have bben trained and earned two TESOL certificates that demonstrate my application to teach students English whose mother tongue is not English (see Below). Hopefully, my skills can help students grasp the use of English better and faster than their usual progressions.
+Personally, teaching English has been fascinating to me because of its unique grammar rules. I have been communicating using English in my studies for those two degrees. When I was studying for my PRM and SPM, my Mathematics, Additional Mathematics, Science, Chemistry, and Biology subjects were taught and learnt in Bahasa Malaysia. This means that I have no problem tutoring young students to learn these technical subjects in both English and Bahasa Malaysia. Additionally, I have bben trained and earned two TESOL certificates that demonstrate my application to teach students English whose mother tongue is not English (see Below). Hopefully, my skills can help students grasp the use of English better and faster than their usual progressions.
 
 ![](/TESOL_full.JPG)
 
