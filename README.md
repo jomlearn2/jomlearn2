@@ -15,7 +15,7 @@ email:    keyofjeli3-1@yahoo.com
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 **Brief Introduction of me**
 
-I am a working professional in analytics field, but I have strong passion in assisting young students to understand the world through their education. Engaging with students  to make them understand more of their school education needs is lacking in today's Malaysis education system, and that is where I want to serve to help students. 
+I am a working professional in analytics field, but I have strong passion in assisting young students to understand the world through their education. Engaging with students  to make them understand more of their school education needs is lacking in today's Malaysis education system, and that is where I want to serve to help students. So far, I have been providing tutoring services to UEC, PT3 and SPM students for nearly two years now on a part-time basis through home tuition approach. Now, I am expending to **online tutoring given that Covid-19 pandemic has disabled mass gathering.
 
 **Services that I can help tutor your children and school students.**
 
