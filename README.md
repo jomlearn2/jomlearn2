@@ -2,6 +2,16 @@
 
 Making your UEC, PT3 and SPM scoring journeys smoother than they are now.
 
+
+# Contact Me
+
+Phone:    010-8127384
+
+WhatsApp: 010-8127384
+
+email:    keyofjeli3-1@yahoo.com
+
+
 **Brief Introduction of me**
 
 I am a working professional in analytics field, but I have strong passion in assisting young students to understand the world through their education. Engaging with students  to make them understand more of their school education needs is lacking in today's Malaysis education system, and that is where I want to serve to help students. 
@@ -19,15 +29,4 @@ In terms of language teaching, I have been fascinating with English and have bee
 ![](/TESOL_full.JPG)
 
 
-![](https://github.com/jomlearn2/jomlearn2/blob/main/image/tesol_p2.jpg)
-
-
-# Contact Me
-
-Phone:    010-8127384
-WhatsApp: 010-8127384
-email:    keyofjeli3-1@yahoo.com
-
-
-
-
+![](/tesol_p2.jpg)
