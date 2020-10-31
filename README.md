@@ -16,7 +16,7 @@ I am equipped with the scientific knowledge and English given that I have expose
 
 In terms of language teaching, I have been fascinating with English and have been using it in my two degrees. When I was studying for my PRM and SPM, my Mathematics, Additional Mathematics, Science, Chemistry, and Biology subjects were taught and learnt in Bahasa Malaysia. This means that I have no problem tutoring young students to learn these technical subjects in both English and Bahasa Malaysia. Additionally, I have earned two TESOL certificates that demonstrate my learning to teach students English whose mother tongue is not English (see Below).
 
-[]()
+![](https://github.com/jomlearn2/jomlearn2/blob/main/image/TESOL_full.JPG)
 
 []()
 
