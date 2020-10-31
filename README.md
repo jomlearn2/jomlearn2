@@ -16,10 +16,17 @@ I am equipped with the scientific knowledge and English given that I have expose
 
 In terms of language teaching, I have been fascinating with English and have been using it in my two degrees. When I was studying for my PRM and SPM, my Mathematics, Additional Mathematics, Science, Chemistry, and Biology subjects were taught and learnt in Bahasa Malaysia. This means that I have no problem tutoring young students to learn these technical subjects in both English and Bahasa Malaysia. Additionally, I have bben trained and earned two TESOL certificates that demonstrate my application to teach students English whose mother tongue is not English (see Below). Hopefully, my skills can help students grasp the use of English better and faster than their usual progressions.
 
-![](https://github.com/jomlearn2/jomlearn2/blob/main/image/TESOL_full.JPG)
+![](/TESOL_full.JPG)
 
 
 ![](https://github.com/jomlearn2/jomlearn2/blob/main/image/tesol_p2.jpg)
+
+
+# Contact Me
+
+Phone:    010-8127384
+WhatsApp: 010-8127384
+email:    keyofjeli3-1@yahoo.com
 
 
 
