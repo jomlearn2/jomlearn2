@@ -12,9 +12,10 @@ WhatsApp: 010-8127384
 email:    keyofjeli3-1@yahoo.com
 
 Facebook: https://www.facebook.com/JomLearn-107374411182380
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-**Brief Introduction of me**
+**A brief Introduction of me**
 
 I am a working professional in analytics field, but I have strong passion in assisting young students to understand the world through their education. Engaging with students  to make them understand more of their school education needs is lacking in today's Malaysia education system, and that is where I can serve to help students. So far, I have been providing tutoring services to UEC, PT3 and SPM students for nearly two years now on a part-time basis through home tuition approach. Now, I am expanding to **online tutoring given that Covid-19 pandemic has disabled mass gathering.
 
