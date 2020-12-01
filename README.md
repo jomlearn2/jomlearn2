@@ -9,7 +9,7 @@ Phone:    010-8127384
 
 WhatsApp: 010-8127384
 
-email:    keyofjeli3-1@yahoo.com
+email:    jomlearn2@gmail.com
 
 Facebook: https://www.facebook.com/JomLearn-107374411182380
 
